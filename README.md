@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Specifying nationality is not an endorsement, speak English, please. : )
+Specifying nationality is not an endorsement, speak English, please : )
